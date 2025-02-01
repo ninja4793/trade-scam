@@ -1,0 +1,2 @@
+# trade-scam
+idk
